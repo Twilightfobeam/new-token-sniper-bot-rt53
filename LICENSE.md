@@ -1,4 +1,4 @@
-# 
+# AI-powered new token sniper bot | arbitrage-opportunities + low-cap-gem-detection offers the most advanced new token sniper bot, with arbitrage-opportunities and
 
 
 
